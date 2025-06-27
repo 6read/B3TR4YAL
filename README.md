@@ -1,3 +1,3 @@
 • 📌 They call me "Kei" •
-🍃 17 yo •
+🍃 18 yo •
 🌬️ C + H (indeed)
